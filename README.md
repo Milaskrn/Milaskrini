@@ -1,2 +1,2 @@
 # Milaskrini
-Hi My name is Mila, 
+Hi im Mila, 
